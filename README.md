@@ -5,7 +5,7 @@
 # ⦻ salutations ִ ࣪𖤐.ᐟ
 ・・・・・
 
-call me **Toby** or **Tobias** ;; or **Tobeez** 🧇
+call me **Toby** or **Tobias** ;; or **Tobeez** 🧇 , 17+ and bisexual.
 
 ⚝
 
