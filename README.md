@@ -32,7 +32,7 @@ call me **Toby** or **Tobias** ;; or **Tobeez** 🧇 , 17+ and bisexual.
 
 ![](https://github.com/TlCClTOBY/TlCCITOBY/blob/main/ticci-toby-creepypasta.gif)
 
-Ticci Toby is my *kinsona*, meaning i see myself in him deeply. __i'm also dianosed with _ADHD___, pls interact with caution! i think slenderverse, crp , SP, mouth washing, DT/UT, omori are awesome! i sometimes draw fanarts of them. andd surprise surprise... i don't ships much. but if you like it, *ya like it;3*
+Ticci Toby is my *kinsona*, meaning i see myself in him deeply. __i'm also diagnosed with _ADHD___, pls interact with caution! i think slenderverse, crp , SP, mouth washing, DT/UT, omori are awesome! i sometimes draw fanarts of them. andd surprise surprise... i don't ships much. but if you like it, *ya like it;3*
 
 **do not interact ⚠︎**
 
