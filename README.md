@@ -46,5 +46,12 @@ you're cool
 
   ![](https://github.com/TlCClTOBY/TlCCITOBY/blob/main/ticcitoby.gif)
 
-  for reading !!
+<details> 
+ 
+  <summary>for reading!!</summary>
+  
+  <img width="150" height="150" alt="image" src="https://github.com/TlCClTOBY/TlCCITOBY/blob/main/toby_goes_benny_boi.jpg">
+
+
+  </details>
   
