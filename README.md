@@ -6,11 +6,8 @@
 
 ・・・・・
 
-call me **Toby** / **Tobias** / **Tobeez** , 17+ and bisexual.
-
-⚝
-
-**c*h and int freely!!** + whisp 2 interact if my status says busy
+call me **Toby** / **Tobias** / **Tobeez** • 17+ • bisexual
+• **c*h and int freely!!** + whisp 2 interact if my status says busy
 
 ![](https://github.com/TlCClTOBY/TlCCITOBY/blob/main/images%20-%202025-10-22T053527.535.jpeg)
  
@@ -33,9 +30,9 @@ call me **Toby** / **Tobias** / **Tobeez** , 17+ and bisexual.
 
 ![](https://github.com/TlCClTOBY/TlCCITOBY/blob/main/ticci-toby-creepypasta.gif)
 
-Ticci Toby is my *kinsona*, meaning i see myself in him deeply. __i'm also diagnosed with **ADHD** ever since i was 14 + loud noises triggers me a lot. pls interact with caution! i can be touch starved at times, so cuddles are appreciated even when i'm offtab!!
+Ticci Toby is my *kinsona*, meaning i see myself in him deeply. i'm also diagnosed with **ADHD** ever since i was 14 years old + loud noises triggers me a lot. i can randomly be hyperactive so pls interact with caution! i can be touch starved at times, so cuddles are appreciated even when i'm offtab!!
 
-i think slenderverse, crp , SP, mouth washing, DT/UT, omori, and danganronpa are awesome! i sometimes draw fanarts of them. andd surprise surprise... i don't ships much. but if you like it, *ya like it;3*
+i think slenderverse, crp , SP, mouth washing, DT/UT, omori, and danganronpa are awesome! i sometimes draw fanarts of them. andd i don't ship much. but if you like it, *ya like it;3*
 
 **MORE FUN FACTS!!!**
 - i do homeschool instead of going out to school!
