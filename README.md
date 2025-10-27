@@ -23,13 +23,13 @@ call me **Toby** / **Tobias** / **Tobeez** • 17+ • bisexual
 
 ⫘⫘⫘⫘⫘⫘
 
-# more about me!!
+# MORE ABOUT ME!!
 
 ![](https://github.com/TlCClTOBY/TlCCITOBY/blob/main/ticci-toby-creepypasta.gif)
 
 Ticci Toby is my *kinsona*, meaning i see myself in him deeply. i'm also diagnosed with **ADHD** ever since i was 14 years old + loud noises triggers me a lot. i can randomly be hyperactive so pls interact with caution! i can be touch starved at times, so cuddles are appreciated even when i'm offtab!!
 
-my interests are: **slenderverse, CRP , SP, mouthwashing, DT/UT, omori, forsaken, and danganronpa** i sometimes draw fanarts of them. andd i don't ship much. but if you like it, *ya like it;3*
+my interests are: **slenderverse, CRP , SP, mouthwashing, DT/UT, omori, forsaken, CRK, TADC, and danganronpa** i sometimes draw fanarts of them. andd i don't ship much. but if you like it, *ya like it;3*
 
 <div align = left>
  
@@ -41,10 +41,10 @@ my interests are: **slenderverse, CRP , SP, mouthwashing, DT/UT, omori, forsaken
 > - playing guitar is one of my hobbies
 
 
-**do not interact ⚠︎**
+**DO NOT INTERACT ⚠︎**
 > - pedophile, proships, ehm jus basic dni criteria
 
-**interact if**
+**INTERACT IF**
 > - you're cool
 
   </details>
