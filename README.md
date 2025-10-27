@@ -2,10 +2,11 @@
 
 <div align="center">
 
-# ⦻ salutations ִ ࣪𖤐.ᐟ
+# ⦻ SALUTATIONS ִ ࣪𖤐.ᐟ
+
 ・・・・・
 
-call me **Toby** or **Tobias** ;; or **Tobeez** 🧇 , 17+ and bisexual.
+call me **Toby** / **Tobias** / **Tobeez** , 17+ and bisexual.
 
 ⚝
 
@@ -32,7 +33,16 @@ call me **Toby** or **Tobias** ;; or **Tobeez** 🧇 , 17+ and bisexual.
 
 ![](https://github.com/TlCClTOBY/TlCCITOBY/blob/main/ticci-toby-creepypasta.gif)
 
-Ticci Toby is my *kinsona*, meaning i see myself in him deeply. __i'm also diagnosed with _ADHD___, pls interact with caution! i think slenderverse, crp , SP, mouth washing, DT/UT, omori, and danganronpa are awesome! i sometimes draw fanarts of them. andd surprise surprise... i don't ships much. but if you like it, *ya like it;3*
+Ticci Toby is my *kinsona*, meaning i see myself in him deeply. __i'm also diagnosed with **ADHD** ever since i was 14 + loud noises triggers me a lot. pls interact with caution! i can be touch starved at times, so cuddles are appreciated even when i'm offtab!!
+
+i think slenderverse, crp , SP, mouth washing, DT/UT, omori, and danganronpa are awesome! i sometimes draw fanarts of them. andd surprise surprise... i don't ships much. but if you like it, *ya like it;3*
+
+**MORE FUN FACTS!!!**
+- i do homeschool instead of going out to school!
+- i was born on april 25th!
+- i'm taurus, like toby!!
+- playing guitar is one of my hobbies
+
 
 **do not interact ⚠︎**
 
