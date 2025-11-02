@@ -6,8 +6,13 @@
 
 ・・・・・
 
-call me **Toby** / **Tobias** / **Tobeez** • 17+ • bisexual
-• **c*h and int freely!!** + whisp 2 interact if my status says busy
+**Toby** / **Tobias** / **Tobeez**
+
+17+ , bisexual
+
+c*h and int freely
+
+whisp 2 interact if my status says busy
 
 ![](https://github.com/TlCClTOBY/TlCCITOBY/blob/main/images%20-%202025-10-22T053527.535.jpeg)
  
