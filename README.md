@@ -12,11 +12,11 @@
 
 c*h and int freely
 
-🌙 - in class
+🌙 - in class / outside
 
-⛔ - offtab
+⛔ - offtab / dniuf / mostly w2i
 
-💬 - int available 
+💬 - random int available 
 
 ![](https://github.com/TlCClTOBY/TlCCITOBY/blob/main/images%20-%202025-10-22T053527.535.jpeg)
  
