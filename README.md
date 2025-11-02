@@ -18,7 +18,7 @@ whisp 2 interact if my status says busy
  
  `` “ it's almost like I found a friend. ” ``
 
- ![Visitor Count](https://komarev.com/ghpvc/?username=tlccltoby&label=Profile%20views&color=949fb5&style=solid)
+ ![Visitor Count](https://komarev.com/ghpvc/?username=tlccltoby&label=⦻%20&color=949fb5&style=solid)
 
 
   <details>
