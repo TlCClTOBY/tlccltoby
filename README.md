@@ -2,35 +2,19 @@
 
 <div align="center">
 
-# ⦻ SALUTATIONS ִ ࣪𖤐.ᐟ
+# SALUTATIONS!!
+![Visitor Count](https://komarev.com/ghpvc/?username=tlccltoby&label=⦻%20&color=949fb5&style=solid)
 
-・・・・・
-
-**Toby** / **Tobias** / **Tobeez**
-
-17+ , bisexual
-
-c*h and int freely
-
-🌙 - in class / outside
-
-⛔ - offtab / dniuf / mostly w2i
-
-💬 - random int available 
+`` Toby / Tobias           7teen               bisexual``
 
 ![](https://github.com/TlCClTOBY/TlCCITOBY/blob/main/images%20-%202025-10-22T053527.535.jpeg)
- 
- `` “ it's almost like I found a friend. ” ``
 
- ![Visitor Count](https://komarev.com/ghpvc/?username=tlccltoby&label=⦻%20&color=949fb5&style=solid)
+``🌙 - in class, outside | ⛔ - offtab / dniuf / w2i | 💬 - int available ``
 
 
   <details>
 
 <summary> 𝗢𝗧𝗛𝗘𝗥𝗦 </summary>
-
-
-⫘⫘⫘⫘⫘⫘
 
 # MORE ABOUT ME!!
 
@@ -56,15 +40,9 @@ my interests are: **slenderverse, CRP , SP, mouthwashing, DT/UT, omori, forsaken
 **INTERACT IF**
 > - you're cool
 
-  </details>
-
-  ![](https://github.com/TlCClTOBY/TlCCITOBY/blob/main/ticcitoby.gif)
-
-<details> 
+<div align = center>
  
-  <summary>for reading!!</summary>
-  
-  <img width="150" height="150" alt="image" src="https://github.com/TlCClTOBY/TlCCITOBY/blob/main/toby_goes_benny_boi.jpg">
+  ![](https://github.com/TlCClTOBY/TlCCITOBY/blob/main/ticcitoby.gif)
 
 
   </details>
