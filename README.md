@@ -9,7 +9,7 @@
 
 ![](https://github.com/TlCClTOBY/TlCCITOBY/blob/main/images%20-%202025-10-22T053527.535.jpeg)
 
-``🌙 - in class, outside | ⛔ - offtab / dniuf / w2i | 💬 - int available ``
+``🌙 - in class, outside, sleeping | ⛔ - offtab, w2i, afk | 💬 - int available ``
 
 
   <details>
@@ -32,6 +32,7 @@ my interests are: **slenderverse, CRP , SP, mouthwashing, DT/UT, omori, forsaken
 > - i was born on april 25th!
 > - i'm taurus, like toby!!
 > - playing guitar is one of my hobbies
+> - chance main.. and noli :)
 
 
 **DO NOT INTERACT ⚠︎**
